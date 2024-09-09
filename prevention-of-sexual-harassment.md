@@ -11,7 +11,7 @@ I would inform that particular person that I am not liking sexual or gender base
 I would inform about this type of behavior to person who is incharge of handling "sexual harassment" cases and follow their instructions on what I need to do next.  
 ### 4. Spreading rumours about a person's personal or sexual life  
 **what would I do if I face this situation**:  
-I would ask that particular person why did he spread false rumours about me and I would also inform about this to supervisor or concerned persona and follow their instructions on what I need to do next.  
+I would ask that particular person why did he/she spread false rumours about me and I would also inform about this to supervisor or concerned persona and follow their instructions on what I need to do next.  
 ### 5. Threats  
 **what would I do if I face this situation**:  
 I would inform about this type of behavior to person who is incharge of handling "sexual harassment" cases and follow their instructions on what I need to do next.  
