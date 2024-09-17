@@ -21,8 +21,8 @@
 ### Steps to improve my Listening
 1. Focusing my mind on the topic being discussed.
 ##  Types of Communication  
-**Passive communication style in day to day life :** When interacting with someone, who is in higher position. eg: Manager in office, Lecturer in college.
-**Aggressive communication style in day to day life :** When I am very upset and my friend tries to irrirate me.
+**Passive communication style in day to day life :** When interacting with someone, who is in higher position. eg: Manager in office, Lecturer in college.  
+**Aggressive communication style in day to day life :** When I am very upset and my friend tries to irrirate me.  
 **Passive Aggressive communication styles in day to day life :** When I am in group of 4 people and one person in group is not working or neglecting.
 ### Tips to make Communication Assertive
 1. Recognize how I feel about others or what I feel at that moment.
